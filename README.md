@@ -10,5 +10,11 @@
 **Chop 1 Onion and 1 Potato into small pieces.**
 
 # Step 3:
-**
+**Put oil into the pan and let it heat for a few minutes.**
+
+#Step 4:
+**If the pan is already hot, you may fry the onion until golden brown.**
+
+#Step 5:
+
 
