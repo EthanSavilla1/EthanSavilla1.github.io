@@ -18,5 +18,13 @@
 **If the pan is already hot, you may fry the onion until golden brown.**
 
 # Step 5:
+**After the onions are golden brown, put the small pieces of potatoes in the pan and let it cook.**
+
+#Step 6:
+**Add the Corned Beef can into the pan and let it cook for about 5-10 minutes.**
+
+#Step 7:
+**Serve and enjoy. Best to eat with rice.**
+
 
 
