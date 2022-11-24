@@ -26,5 +26,6 @@
 # Step 7:
 **Serve and enjoy. Best to eat with rice.**
 
-
+![image](https://user-images.githubusercontent.com/118233926/203674203-47998bee-e2bf-45d1-89b9-1b1192482790.png)
+*My friend eating corned beef.*
 
